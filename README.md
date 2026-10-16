@@ -42,4 +42,4 @@ Assessing store viability, revenue potential, contribution and payback.
 
 ### Let's Connect
 
-[LinkedIn](www.linkedin.com/in/anurag-singh-4b64a838)
+[LinkedIn](https://www.linkedin.com/in/anurag-singh-4b64a838)
